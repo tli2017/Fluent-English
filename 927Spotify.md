@@ -36,4 +36,4 @@ treat sb to sth. 以某物款待某人
 
 ## 听力练习 
 
-I certanily don't think that the working with a shadowy consulting firm to serve you ads pormoting a culture war while you listening to music that suggest you migth be in a casualy racist mood.
+I certanily don't think that they are working with shadowy consulting firm to serve you ads pormoting a culture war while you listening to music that suggests you migth be in a casually racist mood.
